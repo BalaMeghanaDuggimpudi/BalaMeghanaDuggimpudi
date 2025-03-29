@@ -6,7 +6,7 @@
   *University of Houston*, 2023 - 2025
 
 - **Bachelor of Technology** in Computer Science
-  *CMR Institute of Technologyn*, 2017 - 2021
+  *CMR Institute of Technology*, 2017 - 2021
 
 ## Skills 💻
 
